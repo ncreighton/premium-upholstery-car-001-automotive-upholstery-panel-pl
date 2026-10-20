@@ -1,0 +1,2 @@
+# premium-upholstery-car-001-automotive-upholstery-panel-pl
+Tracking upholstery panels across multiple vehicles shouldn't eat up hours of your week. The Automotive Upholstery Panel Planner eliminates scattered notes, missed deadlines, and double-booked projects—giving you one centralized system to manage every panel, every car, every client.  This Notion template transforms chaos into clarity by consolidati
